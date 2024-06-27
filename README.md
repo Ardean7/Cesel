@@ -1,1 +1,0 @@
-Esperimenti per la ditta
